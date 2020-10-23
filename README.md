@@ -1,1 +1,1 @@
-Just a random dude who likes to create magical things.
+Just a random dude who creates magical things.
